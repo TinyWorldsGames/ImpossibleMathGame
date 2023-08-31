@@ -1,2 +1,0 @@
-# ImpossibleMathGame
-Impossible Math Game
