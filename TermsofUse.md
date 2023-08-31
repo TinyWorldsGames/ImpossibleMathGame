@@ -1,4 +1,4 @@
-Terms of Use
+Impossible Math Game Terms of Use
 
 Accounts and Membership
 You must be at least 9 years old to use this Mobile Application. By using this Mobile Application and accepting this Agreement, you guarantee and represent that you are at least 9 years old.
