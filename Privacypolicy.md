@@ -1,4 +1,4 @@
-Impossible Math Game Privacy Policy
+Tiny Worlds Privacy Policy
 
 This privacy policy provides information about the data collection and usage for the mobile game "Impossible Math Game" (hereinafter referred to as the "Game").
 
